@@ -225,4 +225,4 @@ Flashback is available as a full free version with all features and updates incl
 Don't miss your chance to relive the adventure! **Download Flashback for free today and experience the thrill of this remastered classic!**
 
 ---
-**Last updated:** 2026-10-17 13:17:02 UTC
+**Last updated:** 2026-10-17 16:40:52 UTC
